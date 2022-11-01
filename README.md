@@ -1,2 +1,2 @@
 # bharathhj.github.io
-Link : https://bharathhj.github.io/portfolio/#
+Link : https://bharathhj.github.io/sample-curriculum-vitae/#
